@@ -7,13 +7,14 @@
 
 - 💙 I’m interested in Frontend Developer as HTML,CSS and Javascript. **Swift Print Application**
 
-- 💞️ I’m looking to collaborate [(https://www.linkedin.com/in/sanketbaviskar99)]
+- 💞️ I’m looking to collaborate [Linkedin][(https://www.linkedin.com/in/sanketbaviskar99)]
 
-- 📝 I regularly write articles on Github [(https://github.com/Sanketofficalproject?)]((https://github.com/Sanketofficalproject?))
+- 📝 I regularly write articles on [Github] [(https://github.com/Sanketofficalproject?)]
 
 - 💬 Ask me about **Obtain a challenging leadership position applying creative problem solving and lean management skills with a growing company to achieve optimum utilization of its resources and maximum profits.**
 
-- 📫 How to reach me **sanket12b@gmail.com**
+- 📫 How to reach me **sanket12b@gmail.com** 
+- 📫 How to reach me **+91-7083705750**
 
 - 📄 Know about my experiences in Professional Resume [file:///C:/Users/admin/Desktop/sanket12b@gmail.com_resume/Sanket-Baviskar_Professional_Software_Developer.Resume.pdf.pdf](file:///C:/Users/admin/Desktop/sanket12b@gmail.com_resume/Sanket-Baviskar_Professional_Software_Developer.Resume.pdf.pdf)
 
