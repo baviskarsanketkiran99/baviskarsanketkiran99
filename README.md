@@ -7,7 +7,7 @@
 
 - 💙 I’m interested in Frontend Developer as HTML,CSS and Javascript. **Swift Print Application**
 
-- 💞️ I’m looking to collaborate [(https://www.linkedin.com/in/sanketbaviskar99)]((https://www.linkedin.com/in/sanketbaviskar99))
+- 💞️ I’m looking to collaborate [(https://www.linkedin.com/in/sanketbaviskar99)]
 
 - 📝 I regularly write articles on Github [(https://github.com/Sanketofficalproject?)]((https://github.com/Sanketofficalproject?))
 
