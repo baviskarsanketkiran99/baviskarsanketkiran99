@@ -16,7 +16,8 @@
 - 📫 How to reach me **sanket12b@gmail.com** 
 - 📫 How to reach me **+91-7083705750**
 
-- 📄 Know about my experiences in Professional Resume [file:///C:/Users/admin/Desktop/sanket12b@gmail.com_resume/Sanket-Baviskar_Professional_Software_Developer.Resume.pdf.pdf]
+- 📄 Know about my experiences in Professional Resume https://drive.google.com/drive/folders/1uL9Z4M9uU6vzyTzH_buv8yP1s5SPgkYB
+-
 - ⚡ Fun fact **I spend almost 2 hours listening to songs every day.**
 
 <h3 align="left">Connect with me:</h3>
