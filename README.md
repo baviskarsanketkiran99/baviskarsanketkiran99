@@ -11,13 +11,12 @@
 
 - 📝 I regularly write articles on [Github] [(https://github.com/Sanketofficalproject?)]
 
-- 💬 Ask me about:**Obtain a challenging leadership position applying creative problem solving and lean management skills with a growing company to achieve optimum utilization of its resources and maximum profits.**
+- 💬 Ask me about **Obtain a challenging leadership position applying creative problem solving and lean management skills with a growing company to achieve optimum utilization of its resources and maximum profits.**
 
 - 📫 How to reach me **sanket12b@gmail.com** 
 - 📫 How to reach me **+91-7083705750**
 
-- 📄 Know about my experiences in Professional Resume https://drive.google.com/drive/folders/1uL9Z4M9uU6vzyTzH_buv8yP1s5SPgkYB
-- https://drive.google.com/drive/my-drive
+- 📄 Know about my experiences in Professional Resume:https://drive.google.com/drive/folders/1uL9Z4M9uU6vzyTzH_buv8yP1s5SPgkYB
 -
 - ⚡ Fun fact **I spend almost 2 hours listening to songs every day.**
 
