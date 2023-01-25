@@ -9,7 +9,7 @@
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=baviskarsanketkiran99&label=Profile%20views&color=0e75b6&style=flat" alt="baviskarsanketkiran99" /> </p>
 <img align="right" alt="coding" width="300" src="https://miro.medium.com/max/828/0*7Q3yvSIv_t0ioJ-Z.gif">
 
-- 🌱 I’m currently working on Web development and programming.
+- 🔎 I’m currently working on Web development and programming.
 
 - 💙 I’m interested in Frontend Developer as HTML,CSS and Javascript.
 
